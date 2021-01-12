@@ -15,12 +15,10 @@ sd
 f fdsdf df
 
 
-
 afkfads
 afds
 adf
 adfs
-
 
 
 part for pulling
